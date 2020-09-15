@@ -7,7 +7,7 @@ categories:
 tags: social media engagement 
 ---
 
-*What does a "typical interaction" with the internet look like on an average day in my life?*
+***What does a "typical interaction" with the internet look like on an average day in my life?***
 
 <p class="justify">Messaging – Scrolling through social media sites like Instagram, Twitter etc – Engaging with video and music content on Youtube, Spotify, Prime Video – Ordering stuff online through any of the e-commerce sites – and ofcourse, web searching and consuming the content that shows up on those links.</p>
 
@@ -15,9 +15,7 @@ So now, Why, How and Who is out there, setting up this crazy infrastructure, wit
 
 Do they secretly know that I’m a miser and that I won’t be paying if the internet was actually charging me for every Google search I made? Maybe they do. Because clearly, they do know I like watching funny cat videos(I mean who doesn’t? Cats are stupid and funny) and that I like those black headphones which I scouted the internet over for the cheapest offers. So, someone has been secretly, not-stalking me (won’t expose them like that), I’d say admiring me and noting down my every move online so as to provide me all sorts of content just to keep me engaged, entertained, comfortable, procrastinated or to sum it all up, keep me on a dopamine-high day in and day out. How selfless, how invested, how dedicated.. I am impressed and more so, I am blushing.
 
-(Me visibly shying) “O Internet, stop..” 
-
-(muffled shy giggles) “Be a little discreet. You sure know how to keep me happy and I would never want for this to end”. 
+(Muffled shy giggles) “O Internet, stop.. Be a little discreet. You sure know how to keep me happy and I would never want for this to end”. 
 
 I don’t verbally say any of this but it’s understood as I smile while I swipe through cute puppy pictures on Instagram, whilst listening to a curated playlist on Spotify with those black headphones that arrived last week through Amazon, all whilst I am waiting for my movie download to complete on Prime Video.
 
@@ -55,4 +53,4 @@ Having said all that, I end my dialogue.
 
 And you, pause, and either agree with me or you give me the ‘what-a-retard’ face and walk away while I put on my headphones and get ready to watch the movie that finished downloading on Prime Video.
 
-***PS: In case you didn’t notice, I added an asterisk when I said that the rest of the internet is free and in case you did notice, niceee work. But if you didn’t understand why I added that asterisk or why I wrote this article, then send me an email. I will mark it as spam. Lol.***
+***PS: In case you didn’t notice, I added an asterisk when I said that the rest of the internet is free and in case you did notice, niceee work. But if you didn’t understand why I added that asterisk or why I wrote this article, then send me an email. I will mark it as spam.***
