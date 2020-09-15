@@ -2,13 +2,12 @@
 title:       TheObviousNinja
 email:       sivu94@gmail.com
 author:      Shivaranjani
-description: "I do Data Science and laugh at memes and engage in random banters"
+description: ""
 baseurl:     ""
 url:         "http://theobviousninja.github.io"
 date_format: "%b %-d, %Y"
 header_pages:
  - about.md
- - contact.html
 
 # Google services
 google_verification:
