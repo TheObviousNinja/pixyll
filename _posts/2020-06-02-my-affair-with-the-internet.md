@@ -3,7 +3,7 @@ layout:     post
 title:      My Affair with the Internet
 date:       2020-06-02 17:29:18
 summary:    You want the tea? On my affair? You gossip-monger.
-categories: social media engagement 
+categories:  
 tags: social media engagement 
 ---
 
