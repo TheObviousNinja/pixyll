@@ -15,15 +15,13 @@ So now, Why, How and Who is out there, setting up this crazy infrastructure, wit
 
 Do they secretly know that I’m a miser and that I won’t be paying if the internet was actually charging me for every Google search I made? Maybe they do. Because clearly, they do know I like watching funny cat videos(I mean who doesn’t? Cats are stupid and funny) and that I like those black headphones which I scouted the internet over for the cheapest offers. So, someone has been secretly, not-stalking me (won’t expose them like that), I’d say admiring me and noting down my every move online so as to provide me all sorts of content just to keep me engaged, entertained, comfortable, procrastinated or to sum it all up, keep me on a dopamine-high day in and day out. How selfless, how invested, how dedicated.. I am impressed and more so, I am blushing.
 
-(Muffled shy giggles) “O Internet, stop.. Be a little discreet. You sure know how to keep me happy and I would never want for this to end”. 
-
 I don’t verbally say any of this but it’s understood as I smile while I swipe through cute puppy pictures on Instagram, whilst listening to a curated playlist on Spotify with those black headphones that arrived last week through Amazon, all whilst I am waiting for my movie download to complete on Prime Video.
 
 You, a sympathetic person, shaking your head in disapproval while looking at my love-stoned stupid self shamelessly flirting with the internet, come up and try to engage in a private conversation with me.
 
 “You do know that there’s a price you’re paying for this, right?”
 
-I remove my headphones, pause my music, and ask with eager curiosity, “and what exactly is that price?”
+I ask, “and what exactly is that price?”
 
 “It is you, yourself. You’re the price.”
 
